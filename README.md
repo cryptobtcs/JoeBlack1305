@@ -1,4 +1,3 @@
-👋 Hi, I’m @JoeBlack
 
 👀 I’m passionate about the world of cryptocurrencies, exploring blockchain technology, and diving into the exciting realm of crypto investments.
 
